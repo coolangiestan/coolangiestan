@@ -1,5 +1,4 @@
 # HELLO!!!
-an extra little about me section!!
 <p> who am i?? im angie! :3 
 <p><img src="https://file.garden/ZlIITvwmejv6_Pe5/graphicz%20n%20gifz/cat%20jamming.gifv"></p>
 <p>im a minor, if youre 20+ id rather not talk outside of ponytown '3'</p>
