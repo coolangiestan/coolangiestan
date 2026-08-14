@@ -11,5 +11,5 @@
 <p><img src="https://media1.tenor.com/m/MfRNLYxBhfUAAAAC/stonerduo-hellpark.gif"></p>
 <p>i lurrvvvv estella #lesbians</p><p>dayshift at freddys 👅</p>
 <p><img src="https://file.garden/ZlIITvwmejv6_Pe5/graphicz%20n%20gifz/thinks.gif" alt="giphy-2" width="200" height="200" class="giphy-embed"></p>
-<p>i can never escape davesport....</p><p>ummm maybe thats about it. go sign my ata n check my <a href="https://coolangiestan.straw.page">straw</a> + <a href="https://friendrewind.com/profile.php?id=15172">friendrewind</a> 4 more :3 </p>
+<p>i can never escape davesport....</p><p>ummm maybe thats about it. go sign my <a href="https://coolangiestan.atabook.org/">ata</a> n check my <a href="https://coolangiestan.straw.page">straw</a> + <a href="https://friendrewind.com/profile.php?id=15172">friendrewind</a> 4 more :3 </p>
 <p><img src="https://file.garden/ZlIITvwmejv6_Pe5/graphicz%20n%20gifz/gir%20ddr.gif"> <img src="https://file.garden/ZlIITvwmejv6_Pe5/graphicz%20n%20gifz/cat%20dance.gif"></p>
